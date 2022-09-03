@@ -2,4 +2,4 @@
 
 ## PDF HR-DEPARTMENT : https://drive.google.com/file/d/1xnxqIEV89uR4AR0C46kz6OYbUd_yiueq/view?usp=sharing
 
-## PDF Presentasi : Final Presentation - Kelompok DBA-78.pdf
+## PDF Presentasi : https://drive.google.com/file/d/157nAHh5t5m36xQr5wlXRaA1mKqI55uET/view?usp=sharing
